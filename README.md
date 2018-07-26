@@ -39,7 +39,5 @@ It's tough to meet, know, and get stories of everyone at TC.
 
 ### Design Team
 #### Lydia Dick, Graphic Designer
-
-
-
-
+#### Taysa Mohler, Graphic Designer
+#### Rosalie Reuss, Graphic Designer
