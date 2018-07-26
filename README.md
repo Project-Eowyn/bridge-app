@@ -38,8 +38,8 @@ It's tough to meet, know, and get stories of everyone at TC.
 ## Product 
 
 ### Design Team
-#### Lydia Dick, Graphic Designer
-#### Taysa Mohler, Graphic Designer
+#### Lydia Dick, Graphic & UI Designer
+#### Taysa Mohler, Graphic & UI Designer
 #### Rosalie Reuss, Graphic Designer
 #### Rachel Krasnick, Graphic Designer
 
