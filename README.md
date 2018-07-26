@@ -41,3 +41,5 @@ It's tough to meet, know, and get stories of everyone at TC.
 #### Lydia Dick, Graphic Designer
 #### Taysa Mohler, Graphic Designer
 #### Rosalie Reuss, Graphic Designer
+#### Rachel Krasnick, Graphic Designer
+
